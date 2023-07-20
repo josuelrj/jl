@@ -1,0 +1,1 @@
+sema10.Pastor
